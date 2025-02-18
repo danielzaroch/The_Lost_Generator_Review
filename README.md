@@ -416,7 +416,10 @@ After analyzing **The Lost Generator from every angle**, it’s clear that:
 ✔ The **DIY design is beginner-friendly**, making it **accessible even for non-technical users**.
 
 If you're looking for a **reliable, affordable, and sustainable way to generate electricity**, **The Lost Generator is definitely worth considering**.
-
-https://f6c4efpcuyn33wbsv6yjzlk7vc.hop.clickbank.net
+<p align="center">
+  <a href="https://f6c4efpcuyn33wbsv6yjzlk7vc.hop.clickbank.net">
+    <img src="https://i.imgur.com/rGPJ6UX.png" width="370">
+  </a>
+</p>
 
 🔗 [**Click Here to Get Your Copy of The Lost Generator**](https://f6c4efpcuyn33wbsv6yjzlk7vc.hop.clickbank.net)
